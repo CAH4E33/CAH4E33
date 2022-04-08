@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Alex AKA @CAH4E33
+- 👋 Hi, I’m Alex AKA CAH4E3
 - 🌱 I’m currently learning!
 
 
